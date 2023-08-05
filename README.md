@@ -7,8 +7,8 @@ Please read the notes carefully:
 4. This operating system is based on Microsoft PowerPoint.FOR REFERENCE ONLY
 5. Our account:
    TikTok:ShenOS_EP_office
-   Kuaishou(Kwai/quick worker):ShenOS_EP_office
-   BiliBili:3493084287469594
-   Youtube:[Waiting for (QQ) 1280951936]
-   Twitter:[Waiting for (QQ) 1280951936]
+              Kuaishou(Kwai/quick worker):ShenOS_EP_office
+                         BiliBili:3493084287469594
+                                    Youtube:[Waiting for (QQ) 1280951936]
+                                               Twitter:[Waiting for (QQ) 1280951936]
 At last,Welcome to join us!
